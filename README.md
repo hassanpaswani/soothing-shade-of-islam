@@ -1,1 +1,0 @@
-# soothing-shade-of-islam
